@@ -13,7 +13,7 @@ Any Branham High School student MAY become a Member; however, they MUST meet the
 ### Requirements
 
 - Enrolled in Branham High School
-- Paid $40 seasonal club dues (exemptions can be made in cases of financial difficulty)  
+- Paid $45 seasonal club dues (exemptions can be made in cases of financial difficulty)  
 - Returned signed membership form to an Officer  
 - Maintain sufficient attendance at Club Meetings, Build Days and/or Education Days
 
